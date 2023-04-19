@@ -2,6 +2,10 @@
 
 🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳
 
+Video of Tool:
+https://www.youtube.com/watch?v=LIxLk-NvmKs
+
+
 ▪ Menu Bases including (MW,MW2,BO1,BO2,BO3,MW3,W@W)
 
 ▪ 150 Functions for the highlighted games.
@@ -27,8 +31,3 @@
 ▪ Commands
 
 🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳
-
-<-- Video -->
-
-Video of Tool:
-https://www.youtube.com/watch?v=LIxLk-NvmKs
