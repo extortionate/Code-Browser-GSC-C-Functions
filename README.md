@@ -28,13 +28,7 @@
 
 🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳🕳
 
-<-- Video/Downloads -->
+<-- Video -->
 
 Video of Tool:
 https://www.youtube.com/watch?v=LIxLk-NvmKs
-
-Code Browser:
-https://mega.nz/file/4BVWmKqL#25eu1aPnDe044R7WSfVSUMX-yg5W7tfUpemdpi3xTgE
-
-Source Code:
-https://mega.nz/file/oBsEiJaT#h1eYcRxu9hHCS7P2H8ncf8sOCVvhXP8_DPOimMNkfDk
